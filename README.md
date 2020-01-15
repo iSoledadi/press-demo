@@ -1,1 +1,1 @@
-[我承认我有赌的成分]('https://isoledadi.github.io/press-demo/')
+[我承认我有赌的成分](https://isoledadi.github.io/press-demo/)
